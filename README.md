@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Erdem, aka. Batimiuss! 
-- 👀 I’m interested in Video Games
+- 👀 I’m interested Modeling. 
 - 🌱 I’m currently learning work work work and work. 
-- 💞️ I’m in relationship with H
+- 💞️ I’m in relationship with H. 
 - 📫 Batimius#6131
